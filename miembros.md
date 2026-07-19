@@ -17,3 +17,6 @@
 * Vision
 * Wasp
 * Antman
+* yilmar :3
+* jon jones
+* charles oliveira

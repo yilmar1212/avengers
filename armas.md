@@ -17,6 +17,6 @@
 * Vision — Gema de la Mente, manipulación de densidad corporal
 * Wasp — Traje con aguijones eléctricos y control de tamaño
 * Antman — Partículas Pym
-* yilmar :3 — su homelab y determinación 💪
+* yilmar :3 — su homelab y determinación 💪(the goat of the bang)
 * Jon Jones — su alcance, codazos y "spinning elbow"
 * Charles Oliveira — sumisiones (especialista en llaves de sumisión, BJJ)

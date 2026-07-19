@@ -1,7 +1,7 @@
 ## Armas de los Vengadores
 
 * Black Panther — Garras de vibranium / traje de vibranium que absorbe energía cinética
-* Black Widow — Bite (guanteletes eléctricos), pistolas duales, que meo
+* Black Widow — Bite (guanteletes eléctricos), pistolas duales, que meoooooo
 * Capitán América — Escudo de vibranium
 * Capitán Marvel — Sus propios puños (fuerza y energía fotónica)
 * Falcon — Alas mecánicas EXO-7 con armas integradas
